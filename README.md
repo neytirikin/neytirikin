@@ -2,7 +2,7 @@
 <p align="center"> '𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢 𝑎𝑟𝑒 𝑚𝑦 ℎ𝑜𝑝𝑒 𝑛𝑜 𝑚𝑎𝑡𝑡𝑒𝑟 𝑤ℎ𝑒𝑟𝑒 𝐼 𝑔𝑜  
 <p align="center"> 𝑁𝑒𝑣𝑒𝑟 𝑎𝑙𝑜𝑛𝑒 '𝑐𝑎𝑢𝑠𝑒 𝑠𝑜𝑚𝑒ℎ𝑜𝑤 𝐼 𝑎𝑙𝑤𝑎𝑦𝑠 𝑘𝑛𝑜𝑤
 <p align="center">
-![3a578a4a3818bb5646e0683cbbde11e2 (1)](https://github.com/user-attachments/assets/1c00fe7e-c2d9-4c88-bae4-6fe025cd97af)
+![neytirikin](https://github.com/user-attachments/assets/31a55df0-3e71-48ab-8de6-81e03ec0ceac)
 
   <p align="center"> 𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲 ｡𖦹°‧
 <!--
