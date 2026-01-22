@@ -5,6 +5,10 @@
 <img src="https://i.pinimg.com/originals/f7/31/21/f731211ccd8c4605716b762ef85effbe.gif" alt="neytiri" width="965" height="325">
 
   <p align="center"> 𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲 ｡𖦹°‧
+<p align="center">
+<a href="https://github.com/Friendlybites">
+ <img src="https://github.com/user-attachments/assets/517966c9-792c-42f9-b476-54f6d3662543" alt="torukmakto"/>!
+</a>
 <!--
 **neytirikin/neytirikin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
