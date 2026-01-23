@@ -9,6 +9,8 @@
 <a href="https://github.com/Friendlybites">
  <img src="https://github.com/user-attachments/assets/517966c9-792c-42f9-b476-54f6d3662543" alt="torukmakto"/>
 </a>
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/blackmirror.gif" width="598" height="292">
 <!--
 **neytirikin/neytirikin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
