@@ -1,6 +1,6 @@
 ## 𝑛𝑒𝑦𝑡𝑖𝑟𝑖 ‧₊˚💙. ♱
 <p align="center">
-<a href="https://www.glitter-graphics.com"><img src="http://dl3.glitter-graphics.net/pub/472/472663b15imefkfu.gif" width=509 height=40 border=0></a>
+<a href="https://www.glitter-graphics.com"><img src="http://dl3.glitter-graphics.net/pub/472/472663b15imefkfu.gif" width=309 height=40 border=0></a>
 <p align="center"> '𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢 𝑎𝑟𝑒 𝑚𝑦 ℎ𝑜𝑝𝑒 𝑛𝑜 𝑚𝑎𝑡𝑡𝑒𝑟 𝑤ℎ𝑒𝑟𝑒 𝐼 𝑔𝑜  
 <p align="center"> 𝑁𝑒𝑣𝑒𝑟 𝑎𝑙𝑜𝑛𝑒 '𝑐𝑎𝑢𝑠𝑒 𝑠𝑜𝑚𝑒ℎ𝑜𝑤 𝐼 𝑎𝑙𝑤𝑎𝑦𝑠 𝑘𝑛𝑜𝑤
 <p align="center">
@@ -12,7 +12,7 @@
  <img src="https://github.com/user-attachments/assets/517966c9-792c-42f9-b476-54f6d3662543" alt="torukmakto"/>
 </a>
 <p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/blackmirror.gif" width="598" height="292">
+<img src="https://pixelsafari.neocities.org/dividers/blackmirror.gif" width="398" height="92">
 <!--
 **neytirikin/neytirikin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
