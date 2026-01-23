@@ -1,4 +1,4 @@
-## 𝑛𝑒𝑦𝑡𝑖𝑟𝑖 ‧₊˚💙
+## 𝑛𝑒𝑦𝑡𝑖𝑟𝑖 ‧₊˚💙. ♱
 <p align="center">
 <a href="https://www.glitter-graphics.com"><img src="http://dl3.glitter-graphics.net/pub/472/472663b15imefkfu.gif" width=509 height=40 border=0></a>
 <p align="center"> '𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢 𝑎𝑟𝑒 𝑚𝑦 ℎ𝑜𝑝𝑒 𝑛𝑜 𝑚𝑎𝑡𝑡𝑒𝑟 𝑤ℎ𝑒𝑟𝑒 𝐼 𝑔𝑜  
