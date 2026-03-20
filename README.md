@@ -1,15 +1,19 @@
-## 𝑛𝑒𝑦𝑡𝑖𝑟𝑖 ‧₊˚💙. ♱
-<p align="center">
-<a href="https://www.glitter-graphics.com"><img src="http://dl3.glitter-graphics.net/pub/472/472663b15imefkfu.gif" width=429 height=30 border=0></a>
-<p align="center"> '𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢 𝑎𝑟𝑒 𝑚𝑦 ℎ𝑜𝑝𝑒 𝑛𝑜 𝑚𝑎𝑡𝑡𝑒𝑟 𝑤ℎ𝑒𝑟𝑒 𝐼 𝑔𝑜  
-<p align="center"> 𝑁𝑒𝑣𝑒𝑟 𝑎𝑙𝑜𝑛𝑒 '𝑐𝑎𝑢𝑠𝑒 𝑠𝑜𝑚𝑒ℎ𝑜𝑤 𝐼 𝑎𝑙𝑤𝑎𝑦𝑠 𝑘𝑛𝑜𝑤
-<p align="center">
-<img src="https://img.wattpad.com/1a3a59eba7b92734d6d979cd1c019dcbfbf74a5d/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f7151354d425442776233744d41673d3d2d313630313236363833382e313838393339356132383436643930373536363030323934353337392e676966" alt="neytiri" width="598" height="292">
+## 𝑛𝑒𝑦𝑡𝑖𝑟𝑖 ⸝⸝  .ᐟ
+<p align="center"> <img width="538" height="273" alt="cb2e7d22ff2f3b37486bbc9aa7c553a7-removebg-preview" src="https://github.com/user-attachments/assets/45b9159a-45db-4715-8cbc-7d8127a78512" />
 
-  <p align="center"> ⊹ ࣪ ˖ 𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲 ｡𖦹°‧
+<p align="center"> '𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'
+  <p align="center"> ​​・・・・・
+ <p align="center"> 𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.
+<p align="center"> <img src=https://usagif.com/wp-content/uploads/2022/11/avatar-the-way-of-water-acegif-27.gif>
+
+
+<p align=center> 
+<a href=https://atteiu.straw.page/> strawpage</a>ㅤ𓏼ㅤ<a href=https://neytirisully.carrd.co/> carrd </a> </p>
+<p align="center"> ​​・・・・・
+  <p align="center"> ⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧
 </a>
-<p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/blackmirror.gif" width="398" height="92">
+<p align="center"> <img width="580" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/3c200c13-5604-4a1e-ada7-feab3db67405" />
+
 <!--
 **neytirikin/neytirikin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
