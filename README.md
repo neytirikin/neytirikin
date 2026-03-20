@@ -13,7 +13,7 @@
 <p align="center"> ​​・・・・・
   <p align="center"> ⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧
 </a>
-<p align="center"> <img width="580" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/3c200c13-5604-4a1e-ada7-feab3db67405" />
+<p align="center"> <img width="540" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/3c200c13-5604-4a1e-ada7-feab3db67405" />
 
 <!--
 **neytirikin/neytirikin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
