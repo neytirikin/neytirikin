@@ -9,7 +9,7 @@
 
 
 <p align=center> 
-<a href=https://atteiu.straw.page/> strawpage</a>ㅤ𓏼ㅤ<a href=https://neytirisully.carrd.co/> carrd </a> </p>
+<a href=https://atteiu.straw.page/> main</a>ㅤ𓏼ㅤ<a href=https://attesgalleryah.straw.page/> gallery </a> </p>
 <p align="center"> ​​・・・・・
   <p align="center"> ⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧
 </a>
@@ -18,6 +18,8 @@
 <p align="center"> 𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯
   <p align="center"> ​​・・・・・
 <p align="center"> 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ 
+  <p align=center> 
+<a href=https://neytirisully.carrd.co/> carrd.co</a>
 <p align="center"> <img width="530" height="215" alt="image-removebg-preview (22)" src="https://github.com/user-attachments/assets/82fea65e-1672-40fd-82a5-df81f788c9c3" />
 
 
