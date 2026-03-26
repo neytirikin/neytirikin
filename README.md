@@ -25,8 +25,8 @@
 
  # ${\textsf{\color{#868b6b}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
   <p align="center"> ${\textsf{\color{#9a968c}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
+     <p align="center"> ​​・・・・・
 <p align="center"> ${\textsf{\color{#908977}𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯 }}$
-  <p align="center"> ​​・・・・・
 <p align="center"> <img width="518" height="273" src="https://64.media.tumblr.com/35bf69b4a233a04b8e9754f50550dfee/47d303ca919e27c5-dc/s640x960/158090bd1c8cbb38b0ac8c8acd7b4ff82e883210.gif" alt="neyney"/>
    
 </div>
