@@ -1,4 +1,7 @@
+</div>
+<div align="center">
 
+ # ${\textsf{\color{#bdbab9}౿ ݁  . 𝑐ℎ𝑒𝑐𝑘 𝑚𝑒 𝑜𝑢𝑡 !! ︵   ｡ Ꮺ ˚}}$ 
 <p align="center"> <img width="538" height="273" alt="cb2e7d22ff2f3b37486bbc9aa7c553a7-removebg-preview" src="https://github.com/user-attachments/assets/45b9159a-45db-4715-8cbc-7d8127a78512" />
 <p align="center"> 
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
