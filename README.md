@@ -27,6 +27,7 @@
   <p align="center"> ${\textsf{\color{#9a968c}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
 <p align="center"> ${\textsf{\color{#908977}𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯 }}$
   <p align="center"> ​​・・・・・
+<p align="center"> <img width="518" height="273" src="https://media.tenor.com/_iP_YH88EG0AAAAM/neytiri-neytiri-avatar.gif" alt="neyney"/>
    
 </div>
 <div align="center">
