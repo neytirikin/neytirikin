@@ -1,4 +1,7 @@
-## 𝑛𝑒𝑦𝑡𝑖𝑟𝑖 ⸝⸝  .ᐟ . ✦ ݁ ˖
+  </div>
+<div align="center">
+
+ # ${\textsf{\color{#868b6b}𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ . ✦ ݁ ˖}}$ 
 <p align="center"> <img width="538" height="273" alt="cb2e7d22ff2f3b37486bbc9aa7c553a7-removebg-preview" src="https://github.com/user-attachments/assets/45b9159a-45db-4715-8cbc-7d8127a78512" />
 <p align="center"> 
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
@@ -11,7 +14,7 @@
 <p align=center> 
 <a href=https://atteiu.straw.page/> main</a>ㅤ𓏼ㅤ<a href=https://attesgalleryah.straw.page/> gallery </a> </p>
 <p align="center"> ​​・・・・・
-  <p align="center"> ⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧
+  <p align="center"> ⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧ 
 </a>
 <p align="center"> <img width="540" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/3c200c13-5604-4a1e-ada7-feab3db67405" />
   <p align="center"> 𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !! 
