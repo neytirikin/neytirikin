@@ -27,12 +27,12 @@
   <p align="center"> 𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !! 
 <p align="center"> 𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯
   <p align="center"> ​​・・・・・
-<p align="center"> 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ 
-
+   
 </div>
 <div align="center">
  
 [<img width="115" height="79" alt="Untitled94_20260326224541-removebg-preview" src="https://github.com/user-attachments/assets/dd1df063-1758-4537-b5e1-fc90e07bb5f5" />](https://neytirisully.carrd.co/)</a>
+<p align="center"> 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ 
 <p align="center"> <img width="530" height="215" alt="image-removebg-preview (22)" src="https://github.com/user-attachments/assets/82fea65e-1672-40fd-82a5-df81f788c9c3" />
 
 
