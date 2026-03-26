@@ -11,8 +11,10 @@
 <p align="center"> <img src=https://usagif.com/wp-content/uploads/2022/11/avatar-the-way-of-water-acegif-27.gif>
 
 
-<p align=center> 
-<a href=https://atteiu.straw.page/> main</a>ㅤ𓏼ㅤ<a href=https://attesgalleryah.straw.page/> gallery </a> </p>
+</div>
+<div align="center">
+ 
+[<img width="112" height="96" alt="Untitled94_20260326224841-removebg-preview" src="https://github.com/user-attachments/assets/8db2f0f9-5554-4d36-b291-9704f6864413" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="109" height="63" alt="Untitled94_20260326224841__1_-removebg-preview" src="https://github.com/user-attachments/assets/8e41af1d-8c1a-43a2-8376-b311b7bba55a" />](=https://attesgalleryah.straw.page/)</a> </p>
 <p align="center"> ​​・・・・・
   <p align="center"> ⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧ 
 </a>
@@ -26,8 +28,11 @@
 <p align="center"> 𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯
   <p align="center"> ​​・・・・・
 <p align="center"> 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ 
-  <p align=center> 
-<a href=https://neytirisully.carrd.co/> carrd.co</a>
+
+</div>
+<div align="center">
+ 
+[<img width="115" height="79" alt="Untitled94_20260326224541-removebg-preview" src="https://github.com/user-attachments/assets/dd1df063-1758-4537-b5e1-fc90e07bb5f5" />](https://neytirisully.carrd.co/)</a>
 <p align="center"> <img width="530" height="215" alt="image-removebg-preview (22)" src="https://github.com/user-attachments/assets/82fea65e-1672-40fd-82a5-df81f788c9c3" />
 
 
