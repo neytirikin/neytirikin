@@ -42,7 +42,10 @@
  <p align="center"> ​​・・・・・
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
 <p align="center"> <img width="2048" height="524" alt="tumblr_33d4d9474b4a087088a4024f586bcf91_95581d0c_2048" src="https://github.com/user-attachments/assets/3f82b5a3-0624-4d8a-a8c3-a670bc043231" />
+</div>
+<div align="center">
 
+ # ${\textsf{\color{#bdbab9}⸝⸝  . 𝑜𝑒𝑙 𝑛𝑔𝑎𝑡𝑖 𝑘𝑎𝑚𝑒𝑖𝑒    ｡ ⟢ ˚}}$ 
 
 
 
