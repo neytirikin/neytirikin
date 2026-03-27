@@ -32,13 +32,16 @@
      <p align="center"> ​​・・・・・
 <p align="center"> ${\textsf{\color{#bdbab9}𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯 }}$
 <p align="center"> <img width="728" height="374" src=https://github.com/user-attachments/assets/3feaa6d8-c5cc-440f-97c7-0f951551890f/>
-   
+
+<p align="center">${\textsf{\color{#d7d7d5} 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
+    
 </div>
 <div align="center">
  
 [<img width="92" height="42" alt="Untitled94_20260326224541-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/be662ed1-2b1a-41ad-8908-5b106908a7f0" />
 ](https://neytirisully.carrd.co/)</a>
-<p align="center">${\textsf{\color{#d7d7d5} 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
+ <p align="center"> ​​・・・・・
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
 <p align="center"> <img width="2048" height="524" alt="tumblr_33d4d9474b4a087088a4024f586bcf91_95581d0c_2048" src="https://github.com/user-attachments/assets/3f82b5a3-0624-4d8a-a8c3-a670bc043231" />
 
 
