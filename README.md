@@ -22,11 +22,7 @@
 <p align="center"> ​​・・・・・
   <p align="center"> ${\textsf{\color{#cbcdd1}⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧  }}$
 </a>
-<p align="center"> <img width="748" height="154" alt="tumblr_96827b4dcde2daeee1fbf96c1dfbd842_2eda83b5_2048" src="https://github.com/user-attachments/assets/feffd239-163a-430c-a830-443d6ebf0a88" />
-
-
-
-
+<p align="center"> <img width="783" height="230" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/6c3bb9a4-f3ce-409a-b9f6-f44bac9cee3f" />
 
 </div>
 <div align="center">
