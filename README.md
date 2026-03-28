@@ -10,7 +10,8 @@
 <p align="center"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$
   <p align="center"> ​​・・・・・
  <p align="center"> ${\textsf{\color{#bdbab9}𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.}}$
-<p align="center"> <img width="748" height="524" src=https://github.com/user-attachments/assets/c9f514f2-bbee-4a73-b05c-c38c6c555949/>
+<p align="center"> <img width="1140" height="711" alt="Untitled95_20260328163810" src="https://github.com/user-attachments/assets/f88b96cd-a695-4a50-893a-48c41c1c69cb" />
+
 
 
 
@@ -31,7 +32,8 @@
   <p align="center"> ${\textsf{\color{#d7d7d5}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
      <p align="center"> ​​・・・・・
 <p align="center"> ${\textsf{\color{#bdbab9}𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯 }}$
-<p align="center"> <img width="728" height="374" src=https://github.com/user-attachments/assets/3feaa6d8-c5cc-440f-97c7-0f951551890f/>
+<p align="center"> <img width="1140" height="711" alt="Untitled95_20260328162316" src="https://github.com/user-attachments/assets/10806449-fffe-46b1-88da-af18ab6e0250" />
+
     
 </div>
 <div align="center">
