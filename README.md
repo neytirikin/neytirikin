@@ -32,9 +32,8 @@
   <p align="center"> ${\textsf{\color{#d7d7d5}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
      <p align="center"> ​​・・・・・
 <p align="center"> ${\textsf{\color{#bdbab9}𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯 }}$
-<p align="center"> <img width="740" height="511" alt="Untitled95_20260328162316" src="https://github.com/user-attachments/assets/10806449-fffe-46b1-88da-af18ab6e0250" />
+<p align="center"> <img width="740" height="511" alt="Untitled95_20260328164326" src="https://github.com/user-attachments/assets/1321ad52-25ce-4a37-8b3c-086d9a777082" />
 
-    
 </div>
 <div align="center">
  
