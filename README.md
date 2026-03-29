@@ -18,7 +18,7 @@
 </div>
 <div align="center">
  
-[<img width="104" height="52" alt="Untitled94_20260326224841-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/d67b8abf-ee8d-494f-8308-4b8730e95d98" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="144" height="52" alt="Untitled94_20260326224841__1_-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/7ebdcaf5-98f6-4f2d-a8b3-3a67fd331fac" />](=https://attesgalleryah.straw.page/)</a> </p>
+[<img width="104" height="52" alt="Untitled94_20260326224841-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/d67b8abf-ee8d-494f-8308-4b8730e95d98" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="144" height="52" alt="Untitled94_20260326224841__1_-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/7ebdcaf5-98f6-4f2d-a8b3-3a67fd331fac" />](https://attesgalleryah.straw.page/)</a> </p>
 <p align="center"> ​​・・・・・
   <p align="center"> ${\textsf{\color{#cbcdd1}⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧  }}$
 </a>
