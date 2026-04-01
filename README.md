@@ -38,7 +38,15 @@
  
 [<img width="92" height="42" alt="Untitled94_20260326224541-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/be662ed1-2b1a-41ad-8908-5b106908a7f0" />
 ](https://neytirisully.carrd.co/)</a>
-<p align="center">${\textsf{\color{#d7d7d5} 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
+<table>
+    <tr>
+      <td>
+       <p align="center"> $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$<br>
+         <p align="center"> $\color{#bdbab9}{\textsf{  𝅄    ۪   ݁ ㅤ𝑛𝑒𝑦𝑡𝑖𝑟𝑖 𝑓𝑖𝑐𝑡𝑘𝑖𝑛ㅤ.. ⟢ }}$<br>
+      </td>
+    </tr>
+  </table>
+  </div>
  <p align="center"> ​​・・・・・
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
 <p align="center"> <img width="2048" height="524" alt="tumblr_33d4d9474b4a087088a4024f586bcf91_95581d0c_2048" src="https://github.com/user-attachments/assets/3f82b5a3-0624-4d8a-a8c3-a670bc043231" />
