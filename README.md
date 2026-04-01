@@ -33,7 +33,7 @@
      <p align="center"> ​​・・・・・
 <div align="center">  
   <details>
-    <summary>${\textsf{\color{#bdbab9}†    .　𝑫𝑶 𝑵𝑶𝑻 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻　　˘}}$</summary>
+    <summary>${\textsf{\color{#bdbab9}†　　.　𝑫𝑶 𝑵𝑶𝑻 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻　　˘}}$</summary>
     <div align="center">
      ${\textsf{\color{#cbcdd1}。basic dni criteria}}$
        <div align="center">
@@ -47,7 +47,7 @@
 *******
 <div align="center">  
   <details>
-    <summary>${\textsf{\color{#bdbab9}†    .　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
+    <summary>${\textsf{\color{#bdbab9}†　　.　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
     <div align="center">
      ${\textsf{\color{#cbcdd1}。ney / atte / ivoka}}$
        <div align="center">
