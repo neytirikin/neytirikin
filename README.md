@@ -38,10 +38,10 @@
  
 [<img width="92" height="42" alt="Untitled94_20260326224541-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/be662ed1-2b1a-41ad-8908-5b106908a7f0" />
 ](https://neytirisully.carrd.co/)</a>
+ <p align="center">  $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
 <table>
     <tr>
       <td>
-       <p align="center"> $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$<br>
          <p align="center"> $\color{#bdbab9}{\textsf{  𝅄    ۪   ݁ ㅤ𝑛𝑒𝑦𝑡𝑖𝑟𝑖 𝑓𝑖𝑐𝑡𝑘𝑖𝑛ㅤ.. ⟢ }}$<br>
       </td>
     </tr>
