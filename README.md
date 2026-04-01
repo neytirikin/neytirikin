@@ -18,7 +18,8 @@
 </div>
 <div align="center">
  
-[<img width="104" height="52" alt="Untitled94_20260326224841-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/d67b8abf-ee8d-494f-8308-4b8730e95d98" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="144" height="52" alt="Untitled94_20260326224841__1_-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/7ebdcaf5-98f6-4f2d-a8b3-3a67fd331fac" />](https://attesgalleryah.straw.page/)</a> </p>
+[<img width="104" height="52" alt="Untitled94_20260326224841-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/d67b8abf-ee8d-494f-8308-4b8730e95d98" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="144" height="52" alt="Untitled94_20260326224841__1_-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/7ebdcaf5-98f6-4f2d-a8b3-3a67fd331fac" />](https://attesgalleryah.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="112" height="52" alt="Untitled94_20260326224541-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/be662ed1-2b1a-41ad-8908-5b106908a7f0" />
+](https://neytirisully.carrd.co/)</a> </p>
 <p align="center"> ​​・・・・・
   <p align="center"> ${\textsf{\color{#cbcdd1}⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧  }}$
 </a>
@@ -30,14 +31,36 @@
  # ${\textsf{\color{#e7e7e7}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
   <p align="center"> ${\textsf{\color{#d7d7d5}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
      <p align="center"> ​​・・・・・
-<p align="center"> ${\textsf{\color{#bdbab9}𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑜𝑜𝑚𝑓𝑖𝑒𝑠  .ᐟ  𐂯 }}$
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{#bdbab9}.　⟢　𝑫𝑶 𝑵𝑶𝑻 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻　　˘}}$</summary>
+    <div align="center">
+     ${\textsf{\color{#cbcdd1}。basic dni criteria}}$
+       <div align="center">
+     ${\textsf{\color{#cbcdd1}。hatred towards my oomfies}}$
+         <div align="center">
+     ${\textsf{\color{#cbcdd1}。pro-shippers, overreacting yumeshippers}}$
+              <div align="center">
+     ${\textsf{\color{#cbcdd1}。neytiri/jinx/velvet or my franchises' hater}}$
+</details>
+
+*******
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{#bdbab9}.　⟢　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
+    <div align="center">
+     ${\textsf{\color{#cbcdd1}。ney / atte / ivoka}}$
+       <div align="center">
+     ${\textsf{\color{#cbcdd1}。i love my oomfies and i hope to meet more people!!}}$
+         <div align="center">
+     ${\textsf{\color{#cbcdd1}。i'm talkative and easy to get attached, so please consider before adding me}}$
+              <div align="center">
+     ${\textsf{\color{#cbcdd1}。i draw, i sing, i design, i organize shows, i model, i photograph irl}}$
+</details>
+
+*******
 <p align="center"> <img width="740" height="511" alt="Untitled95_20260328164326" src="https://github.com/user-attachments/assets/1321ad52-25ce-4a37-8b3c-086d9a777082" />
 
-</div>
-<div align="center">
- 
-[<img width="92" height="42" alt="Untitled94_20260326224541-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/be662ed1-2b1a-41ad-8908-5b106908a7f0" />
-](https://neytirisully.carrd.co/)</a>
  <p align="center">  $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
 <table>
     <tr>
