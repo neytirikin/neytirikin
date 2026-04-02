@@ -44,7 +44,6 @@
      ${\textsf{\color{#cbcdd1}。neytiri/jinx/velvet or my franchises' hater}}$
 </details>
 
-*******
 <div align="center">  
   <details>
     <summary>${\textsf{\color{#bdbab9}†　　.　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
@@ -58,7 +57,6 @@
      ${\textsf{\color{#cbcdd1}。i draw, i sing, i design, i organize shows, i model, i photograph irl}}$
 </details>
 
-*******
 <p align="center"> <img width="740" height="511" alt="Untitled95_20260328164326" src="https://github.com/user-attachments/assets/1321ad52-25ce-4a37-8b3c-086d9a777082" />
 
  <p align="center">  $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
