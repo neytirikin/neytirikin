@@ -18,7 +18,6 @@
         <br>
            <p align="center"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
             <img src=https://github.com/user-attachments/assets/8820d717-df6e-454e-b629-6b9ea815c2bc> ・・・・・
-            <p align="center"> </p>${\textsf{\color{#bdbab9}𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.}}$ <br> 
          <br>
       </td>
     </tr>
