@@ -7,17 +7,19 @@
 
 <p align="center"> 
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
-<p align="left"> <img width="248" height="248" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/e606e88e-b794-4d24-99b8-34883c56ab08" /></p>
-</p>
+ 
+<img width="448" height="448" align="left" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/e606e88e-b794-4d24-99b8-34883c56ab08" /></p>
+
 <br>
 <br>
   <table>
     <tr>
       <td>
         <br>
-<p align="right"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
-  <p align="right"> ​​・・・・・
- <p align="right"> ${\textsf{\color{#bdbab9}𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.}}$ <br>
+           <p align="center"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
+            <img src=https://github.com/user-attachments/assets/8820d717-df6e-454e-b629-6b9ea815c2bc> ・・・・・
+            <p align="center"> </p>${\textsf{\color{#bdbab9}𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.}}$ <br> 
+         <br>
       </td>
     </tr>
   </table>
@@ -38,6 +40,8 @@
 <div align="center">
 
  # ${\textsf{\color{#e7e7e7}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
+<img width="317" height="230" align="right" alt="Untitled105_20260404233610" src="https://github.com/user-attachments/assets/a952068b-fd4e-43a2-8cdb-6d37897d2f88" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=878C90&center=true&vCenter=true&width=435&lines=Neytiri+te+Tskaha+Mo'at'ite;I+will+kill+you+as+many+times+as+I+have+to!" alt="Typing SVG" /></a>
   <p align="center"> ${\textsf{\color{#d7d7d5}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
      <p align="center"> ​​・・・・・
 <div align="center">  
@@ -79,10 +83,14 @@
   </table>
   </div>
 </details>
+<br>
 
-<p align="center"> <img width="740" height="511" alt="Untitled95_20260328164326" src="https://github.com/user-attachments/assets/1321ad52-25ce-4a37-8b3c-086d9a777082" />
+<img src=https://github.com/user-attachments/assets/f9be448f-4050-417e-b9f6-81d44298636a>
+<br>
+<br>
 
- <p align="center">  $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
+
+<p align="center">  $\color{#d7d7d5}{\textsf{ 𝅄    ݁   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
 <table>
     <tr>
       <td>
@@ -92,7 +100,7 @@
   </table>
   </div>
  <p align="center"> ​​・・・・・
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=C5D5CD&center=true&vCenter=true&width=435&lines=Neytiri+te+Tskaha+Mo'at'ite;I+will+kill+you+as+many+times+as+I+have+to!" alt="Typing SVG" /></a>
 <p align="center"> <img width="2048" height="524" alt="tumblr_33d4d9474b4a087088a4024f586bcf91_95581d0c_2048" src="https://github.com/user-attachments/assets/3f82b5a3-0624-4d8a-a8c3-a670bc043231" />
 </div>
 <div align="center">
