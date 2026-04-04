@@ -7,11 +7,20 @@
 
 <p align="center"> 
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
-<p align="center"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$
-  <p align="center"> ​​・・・・・
- <p align="center"> ${\textsf{\color{#bdbab9}𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.}}$
-<p align="center"> <img width="740" height="511" alt="Untitled95_20260328163810" src="https://github.com/user-attachments/assets/f88b96cd-a695-4a50-893a-48c41c1c69cb" />
-
+<p align="left"> <img width="248" height="248" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/e606e88e-b794-4d24-99b8-34883c56ab08" /></p>
+</p>
+<br>
+<br>
+  <table>
+    <tr>
+      <td>
+        <br>
+<p align="right"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
+  <p align="right"> ​​・・・・・
+ <p align="right"> ${\textsf{\color{#bdbab9}𝐼 𝑝𝑢𝑡 𝑚𝑦 ℎ𝑒𝑎𝑑 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑦𝑜𝑢𝑟 𝑐ℎ𝑒𝑠𝑡 𝑎𝑛𝑑 𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑑 𝑡ℎ𝑟𝑜𝑢𝑔ℎ 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡.}}$ <br>
+      </td>
+    </tr>
+  </table>
 
 
 
