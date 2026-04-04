@@ -38,8 +38,11 @@
 <div align="center">
 
  # ${\textsf{\color{#e7e7e7}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
-<img width="317" height="230" align="right" alt="Untitled105_20260404233610" src="https://github.com/user-attachments/assets/a952068b-fd4e-43a2-8cdb-6d37897d2f88" />
+<img width="403" height="377" align="right" alt="Untitled105_20260405011937" src="https://github.com/user-attachments/assets/e00a9d47-fa43-4b11-9b9f-7a48900fb891" />
+<br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=878C90&center=true&vCenter=true&width=435&lines=Neytiri+te+Tskaha+Mo'at'ite;I+will+kill+you+as+many+times+as+I+have+to!" alt="Typing SVG" /></a>
+<br>
+<br>
   <p align="center"> ${\textsf{\color{#d7d7d5}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
      <p align="center"> ​​・・・・・
 <div align="center">  
