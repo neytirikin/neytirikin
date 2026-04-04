@@ -34,6 +34,9 @@
 <div align="center">  
   <details>
     <summary>${\textsf{\color{#bdbab9}†　　.　𝑫𝑶 𝑵𝑶𝑻 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻　　˘}}$</summary>
+  <table>
+    <tr>
+      <td>
     <div align="center">
      ${\textsf{\color{#cbcdd1}。basic dni criteria}}$
        <div align="center">
@@ -42,11 +45,18 @@
      ${\textsf{\color{#cbcdd1}。pro-shippers, overreacting yumeshippers}}$
               <div align="center">
      ${\textsf{\color{#cbcdd1}。neytiri/jinx/velvet or my franchises' hater}}$
+  </td>
+    </tr>
+  </table>
+  </div>
 </details>
 
 <div align="center">  
   <details>
     <summary>${\textsf{\color{#bdbab9}†　　.　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
+    <table>
+    <tr>
+      <td>
     <div align="center">
      ${\textsf{\color{#cbcdd1}。ney / atte / ivoka}}$
        <div align="center">
@@ -55,6 +65,10 @@
      ${\textsf{\color{#cbcdd1}。i'm talkative and easy to get attached, so please consider before adding me}}$
               <div align="center">
      ${\textsf{\color{#cbcdd1}。i draw, i sing, i design, i organize shows, i model, i photograph irl}}$
+      </td>
+    </tr>
+  </table>
+  </div>
 </details>
 
 <p align="center"> <img width="740" height="511" alt="Untitled95_20260328164326" src="https://github.com/user-attachments/assets/1321ad52-25ce-4a37-8b3c-086d9a777082" />
