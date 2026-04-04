@@ -17,7 +17,7 @@
     <tr>
       <td>
         <br>
-           <p align="center"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
+           <p align="center"> ${\textsf{\color{#c6c5af}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
             <img src=https://github.com/user-attachments/assets/8820d717-df6e-454e-b629-6b9ea815c2bc> 
          <br>
       </td>
@@ -42,11 +42,11 @@
 <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=878C90&center=true&vCenter=true&width=435&lines=Neytiri+te+Tskaha+Mo'at'ite;I+will+kill+you+as+many+times+as+I+have+to!" alt="Typing SVG" /></a>
 <br>
-     <p align="center"> ​​・・・・・
-  <p align="center"> ${\textsf{\color{#d7d7d5}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
+<p align="center"> ${\textsf{\color{#f4f3f0}​​・・・・・  }}$
+  <p align="center"> ${\textsf{\color{#abad98}𝑓𝑒𝑒𝑙 𝑓𝑟𝑒𝑒 𝑡𝑜 𝑖𝑛𝑡 / 𝑐 + ℎ !!}}$
 <div align="center">  
   <details>
-    <summary>${\textsf{\color{#bdbab9}†　　.　𝑫𝑶 𝑵𝑶𝑻 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻　　˘}}$</summary>
+    <summary>${\textsf{\color{#719288}†　　.　𝑫𝑶 𝑵𝑶𝑻 𝑰𝑵𝑻𝑬𝑹𝑨𝑪𝑻　　˘}}$</summary>
   <table>
     <tr>
       <td>
@@ -66,7 +66,7 @@
 
 <div align="center">  
   <details>
-    <summary>${\textsf{\color{#bdbab9}†　　.　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
+    <summary>${\textsf{\color{#457376}†　　.　𝑨𝑩𝑶𝑼𝑻 𝑴𝑬　　˘}}$</summary>
     <table>
     <tr>
       <td>
