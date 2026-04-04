@@ -18,7 +18,7 @@
       <td>
         <br>
            <p align="center"> ${\textsf{\color{#d7d7d5}'𝑓𝑖𝑟𝑒 𝑜𝑓 ℎ𝑎𝑡𝑒 𝑔𝑖𝑣𝑒𝑠 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑎𝑠ℎ 𝑜𝑓 𝑔𝑟𝑖𝑒𝑓'}}$ <br>
-            <img src=https://github.com/user-attachments/assets/8820d717-df6e-454e-b629-6b9ea815c2bc> ・・・・・
+            <img src=https://github.com/user-attachments/assets/8820d717-df6e-454e-b629-6b9ea815c2bc> 
          <br>
       </td>
     </tr>
