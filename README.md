@@ -4,12 +4,11 @@
  # ${\textsf{\color{#bdbab9}౿ ݁  . 𝑐ℎ𝑒𝑐𝑘 𝑚𝑒 𝑜𝑢𝑡 !! ︵   ｡ Ꮺ ˚}}$ 
 <p align="center"> <img width="2048" height="524" alt="tumblr_7116dd7709d5a52afdaaab6b4a5a1e21_d8664763_2048" src="https://github.com/user-attachments/assets/4d55570c-8091-4dba-889d-365280887d46" />
 
-
-<p align="center"> 
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
  
 <img width="448" height="448" align="left" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/e606e88e-b794-4d24-99b8-34883c56ab08" /></p>
 
+<br>
+<br>
 <br>
 <br>
 <br>
@@ -31,8 +30,7 @@
 <div align="center">
  
 [<img width="104" height="52" alt="Untitled94_20260326224841-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/d67b8abf-ee8d-494f-8308-4b8730e95d98" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="144" height="52" alt="Untitled94_20260326224841__1_-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/7ebdcaf5-98f6-4f2d-a8b3-3a67fd331fac" />](https://attesgalleryah.straw.page/)</a>
-<p align="center"> ​​・・・・・
-  <p align="center"> ${\textsf{\color{#cbcdd1}⊹ ࣪ ˖ㅤ𝐣𝐚𝐤𝐞 𝐬𝐮𝐥𝐥𝐲ㅤ｡𖦹 °‧  }}$
+<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
 </a>
 <p align="center"> <img width="783" height="230" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/6c3bb9a4-f3ce-409a-b9f6-f44bac9cee3f" />
 
