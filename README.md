@@ -89,7 +89,7 @@
 <br>
 <br>
 <br>
-<img width="768" height="7" src=https://github.com/user-attachments/assets/9b34e102-e604-4e97-86a7-5185ba3e7f1d>
+<p align="center"> <img width="2048" height="715" alt="Untitled107_20260405092904" src="https://github.com/user-attachments/assets/311a83da-495e-4a03-b0e5-650ac8d976d9" />
 <br>
 <br>
 
