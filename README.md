@@ -6,12 +6,9 @@
 
 
  
-<img width="448" height="448" align="left" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/e606e88e-b794-4d24-99b8-34883c56ab08" /></p>
+<img width="381" height="358" align="left" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/0fb8f4a2-97ce-4475-b9b8-f69dbfa8daa0" />
+</p>
 
-<br>
-<br>
-<br>
-<br>
 <br>
 <br>
   <table>
