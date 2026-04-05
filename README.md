@@ -92,7 +92,8 @@
 <br>
 
 
-<p align="center">  $\color{#d7d7d5}{\textsf{ ♡   ⏜ㅤ𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑖𝑛 𝑎𝑣𝑎𝑡𝑎𝑟 𝑓𝑎𝑛𝑑𝑜𝑚ㅤ ๑   ֹ   ₊ㅤ  ۟ }}$
+<p align="center">  <img width="448" height="497" alt="Untitled105_20260405103051" src="https://github.com/user-attachments/assets/71a60b6c-f897-4072-8171-68e038349bbe" />
+
 <table>
     <tr>
       <td>
