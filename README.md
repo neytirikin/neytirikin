@@ -1,8 +1,9 @@
 </div>
 <div align="center">
 
- # ${\textsf{\color{#bdbab9}౿ ݁  . 𝑐ℎ𝑒𝑐𝑘 𝑚𝑒 𝑜𝑢𝑡 !! ︵   ｡ Ꮺ ˚}}$ 
-<p align="center"> <img width="2048" height="524" alt="tumblr_7116dd7709d5a52afdaaab6b4a5a1e21_d8664763_2048" src="https://github.com/user-attachments/assets/4d55570c-8091-4dba-889d-365280887d46" />
+ # ${\textsf{\color{#f4f3f0}౿ ݁  . 𝑐ℎ𝑒𝑐𝑘 𝑚𝑒 𝑜𝑢𝑡 !! ︵   ｡ Ꮺ ˚}}$ 
+<p align="center"> <img width="2048" height="524" alt="Untitled106_20260405091625" src="https://github.com/user-attachments/assets/9708bae8-7a7c-4e53-bc50-47097b967899" />
+
 
  
 <img width="448" height="448" align="left" alt="Untitled105_20260404232619" src="https://github.com/user-attachments/assets/e606e88e-b794-4d24-99b8-34883c56ab08" /></p>
@@ -29,16 +30,20 @@
 </div>
 <div align="center">
  
-[<img width="104" height="52" alt="Untitled94_20260326224841-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/d67b8abf-ee8d-494f-8308-4b8730e95d98" />](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="144" height="52" alt="Untitled94_20260326224841__1_-removebg-preview-ezgif com-instagif" src="https://github.com/user-attachments/assets/7ebdcaf5-98f6-4f2d-a8b3-3a67fd331fac" />](https://attesgalleryah.straw.page/)</a>
+[<img width="138" height="59" alt="Untitled105_20260405095243" src="https://github.com/user-attachments/assets/c1957bff-cab3-4c14-bdf5-b682d8280339" />
+](https://atteiu.straw.page/)</a>ㅤㅤ𓏼ㅤㅤ[<img width="148" height="58" alt="Untitled105_20260405095651" src="https://github.com/user-attachments/assets/be281c42-526d-409c-aeb0-875859b3e539" />
+](https://attesgalleryah.straw.page/)</a>
 <p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
 </a>
-<p align="center"> <img width="783" height="230" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/6c3bb9a4-f3ce-409a-b9f6-f44bac9cee3f" />
+<p align="center"> <img width="2048" height="715" alt="Untitled107_20260405092904" src="https://github.com/user-attachments/assets/311a83da-495e-4a03-b0e5-650ac8d976d9" />
+
 
 </div>
 <div align="center">
 
- # ${\textsf{\color{#e7e7e7}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
-<img width="283" height="277" align="right" alt="Untitled105_20260405011937" src="https://github.com/user-attachments/assets/e00a9d47-fa43-4b11-9b9f-7a48900fb891" />
+ # ${\textsf{\color{#c6c5af}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
+<img width="338" height="328" align="right" alt="Untitled105_20260405094112" src="https://github.com/user-attachments/assets/b074209e-5144-4ee8-83ba-a3ffdd7119a8" />
+
 <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=878C90&center=true&vCenter=true&width=435&lines=Neytiri+te+Tskaha+Mo'at'ite;I+will+kill+you+as+many+times+as+I+have+to!" alt="Typing SVG" /></a>
 <br>
@@ -101,7 +106,8 @@
   </div>
  <p align="center"> ​​・・・・・
 <p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
-<p align="center"> <img width="2048" height="524" alt="tumblr_33d4d9474b4a087088a4024f586bcf91_95581d0c_2048" src="https://github.com/user-attachments/assets/3f82b5a3-0624-4d8a-a8c3-a670bc043231" />
+<p align="center"> <img width="2048" height="524" alt="Untitled106_20260405091607" src="https://github.com/user-attachments/assets/98ddb10d-b7ae-49a5-9bc8-44c31ca8bbf6" />
+
 </div>
 <div align="center">
 
