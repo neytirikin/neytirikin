@@ -41,7 +41,6 @@
  # ${\textsf{\color{#c6c5af}✦ ݁ ˖ 𝑁𝐸𝑌𝑇𝐼𝑅𝐼 ⸝⸝  .ᐟ .}}$ 
 <img width="381" height="358" align="right" src=https://github.com/user-attachments/assets/ef8796fe-174e-4356-9b2f-c898ba39828f>
 <br>
-<br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=878C90&center=true&vCenter=true&width=435&lines=Neytiri+te+Tskaha+Mo'at'ite;I+will+kill+you+as+many+times+as+I+have+to!" alt="Typing SVG" /></a>
 <br>
 <p align="center"> ${\textsf{\color{#f4f3f0}​​・・・・・  }}$
@@ -85,7 +84,6 @@
   </table>
   </div>
 </details>
-<br>
 <br>
 <br>
 <p align="center"> <img width="2048" height="715" alt="Untitled107_20260405092904" src="https://github.com/user-attachments/assets/311a83da-495e-4a03-b0e5-650ac8d976d9" />
