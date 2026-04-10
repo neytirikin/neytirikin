@@ -33,8 +33,21 @@
 <p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
 </a>
 <p align="center"> <img width="2048" height="715" alt="Untitled107_20260405092904" src="https://github.com/user-attachments/assets/311a83da-495e-4a03-b0e5-650ac8d976d9" />
+<p align="center">  <img width="448" height="497" alt="Untitled105_20260405103051" src="https://github.com/user-attachments/assets/71a60b6c-f897-4072-8171-68e038349bbe" />
 
-
+<table>
+    <tr>
+      <td>
+         <p align="center"> $\color{#bdbab9}{\textsf{ ୨ৎ   ݁ ㅤ𝑛𝑒𝑦𝑡𝑖𝑟𝑖 𝑓𝑖𝑐𝑡𝑘𝑖𝑛ㅤ.. ⟢ }}$<br>
+      </td>
+    </tr>
+  </table>
+  </div>
+ <p align="center"> ​​・・・・・
+<p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a
+<br>
+<p align="center"> <img width="2048" height="715" alt="Untitled107_20260405092904" src="https://github.com/user-attachments/assets/311a83da-495e-4a03-b0e5-650ac8d976d9" />
+<br>
 </div>
 <div align="center">
 
@@ -85,24 +98,6 @@
   </div>
 </details>
 <br>
-<br>
-<p align="center"> <img width="2048" height="715" alt="Untitled107_20260405092904" src="https://github.com/user-attachments/assets/311a83da-495e-4a03-b0e5-650ac8d976d9" />
-<br>
-<br>
-
-
-<p align="center">  <img width="448" height="497" alt="Untitled105_20260405103051" src="https://github.com/user-attachments/assets/71a60b6c-f897-4072-8171-68e038349bbe" />
-
-<table>
-    <tr>
-      <td>
-         <p align="center"> $\color{#bdbab9}{\textsf{ ୨ৎ   ݁ ㅤ𝑛𝑒𝑦𝑡𝑖𝑟𝑖 𝑓𝑖𝑐𝑡𝑘𝑖𝑛ㅤ.. ⟢ }}$<br>
-      </td>
-    </tr>
-  </table>
-  </div>
- <p align="center"> ​​・・・・・
-<p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
 <p align="center"> <img width="2048" height="524" alt="Untitled106_20260405091607" src="https://github.com/user-attachments/assets/98ddb10d-b7ae-49a5-9bc8-44c31ca8bbf6" />
 
 </div>
