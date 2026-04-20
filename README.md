@@ -1,6 +1,5 @@
-<img align="right" src=https://github.com/user-attachments/assets/ef8796fe-174e-4356-9b2f-c898ba39828f>
-<br>
-<br>
+<img align="right" alt="download (2) (1)" src="https://github.com/user-attachments/assets/3b68adae-d676-4508-9168-269bfef8feb4" />
+
 <br>
 <p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
 </div>
