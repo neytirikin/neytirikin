@@ -9,13 +9,9 @@
 <p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
 </a>
 <br>
-</div>
-<div align="center">
-<br>
- <br>
- <br>
    <details>
-<summary> <a href="https://github.com/Hetm0ngi"> @lyn </a> $\color{#a8a59a}{\textsf{appreciation for being wonderful}}$</summary>
+<summary> <a href="https://github.com/Hetm0ngi"> @lyn </a> $\color{#a8a59a}{\textsf{appreciation for being a wonderful hg}}$</summary>
+     <br>
      <br>
 <p align="center">
 <img alt="Screenshot 2026-04-17 222150" src="https://github.com/user-attachments/assets/dfa5f6d4-7f79-4ef9-9f5a-7d444e91d808" />
