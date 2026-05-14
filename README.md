@@ -12,6 +12,16 @@
 </div>
 <div align="center">
 <br>
+ <br>
+ <br>
+   <details>
+<summary> <a href="https://github.com/Hetm0ngi"> @lyn </a> $\color{#a8a59a}{\textsf{appreciation for being wonderful}}$</summary>
+     <br>
+<p align="center">
+<img alt="Screenshot 2026-04-17 222150" src="https://github.com/user-attachments/assets/dfa5f6d4-7f79-4ef9-9f5a-7d444e91d808" />
+<img alt="a846fcd756c8d7968ed9 (1)" src="https://github.com/user-attachments/assets/95effe1d-103d-433e-9ad7-ace2b73fb3bd" />
+<p align="center"> $\color{#a8a59a}{\textsf{yall LOOK and DROOL at these. NOW.}}$</summary>
+   </details>
 
 
 
