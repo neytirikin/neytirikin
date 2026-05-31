@@ -1,4 +1,5 @@
-<p align="center"><img alt="tumblr_9ede73b63467a71b531a8f208147d0ff_7a5ac6c7_540-ezgif com-speed" src="https://github.com/user-attachments/assets/59e265eb-c527-491a-bd01-1b4bc2361ae6" />
+<p align="center"><img alt="tumblr_02826e7ea51d9e93e74ecdcd01031e38_55b9d7c0_540" src="https://github.com/user-attachments/assets/14d78d54-1a6b-477f-a2c4-150d2aacc4f9" />
+
 <p align="center"><img alt="tumblr_be3513acaa65de1b0bd2120c21c00615_1b8f5469_540" src="https://github.com/user-attachments/assets/d789b9d7-6691-4825-936c-c9022b087611" />
 <div>
 <div align="center">
