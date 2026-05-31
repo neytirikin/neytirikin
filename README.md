@@ -1,23 +1,10 @@
-<img align="right" alt="download (2) (1)" src="https://github.com/user-attachments/assets/3b68adae-d676-4508-9168-269bfef8feb4" />
-
-<br>
-<p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=F3F2EE&center=true&vCenter=true&width=435&lines=I+see+you;You+have+a+strong+heart.+No+fear.;A+son+for+a+son!" alt="Typing SVG" /></a>
-</div>
+<p align="center"><img alt="tumblr_9ede73b63467a71b531a8f208147d0ff_7a5ac6c7_540-ezgif com-speed" src="https://github.com/user-attachments/assets/59e265eb-c527-491a-bd01-1b4bc2361ae6" />
+<p align="center"><img alt="tumblr_be3513acaa65de1b0bd2120c21c00615_1b8f5469_540" src="https://github.com/user-attachments/assets/d789b9d7-6691-4825-936c-c9022b087611" />
+<div>
 <div align="center">
- 
-[<img alt="tumblr_8bb6ef59b9501461b5b57ed2f3d9e528_ff0e152d_100" src="https://github.com/user-attachments/assets/49468111-e3cc-403f-b4bc-34bc953c5fbf" />](https://atteiu.straw.page/)</a>[<img alt="tumblr_dc2a5ab5f49da8171b6021e6bf473f89_dff1284e_100" src="https://github.com/user-attachments/assets/c2161399-67d7-49cd-955b-9cc8b38f2b26" />](https://atteiu.atabook.org/)</a> [<img alt="tumblr_248e2ed51ccf23f4cb2cc49f3a33af5f_4af24004_100" src="https://github.com/user-attachments/assets/ce616cdb-d04f-4ad1-a104-b6ec4efaa908"/>](https://attesgalleryah.straw.page/)</a>
-<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=.%E3%80%80%E2%9F%A2%E3%80%80%F0%9D%92%8F%F0%9D%92%82'%F0%9D%92%97%F0%9D%92%8A%20%E3%80%80%E3%80%80%CB%98&labelColor=%2321211d&countColor=%235a5a55&style=flat" /></a>
-</a>
-<br>
-   <details>
-<summary> <a href="https://github.com/Hetm0ngi"> @lyn </a> $\color{#a8a59a}{\textsf{appreciation for being a wonderful hg}}$</summary>
-     <br>
-     <br>
-<p align="center">
-<img alt="Screenshot 2026-04-17 222150" src="https://github.com/user-attachments/assets/dfa5f6d4-7f79-4ef9-9f5a-7d444e91d808" />
-<img alt="a846fcd756c8d7968ed9 (1)" src="https://github.com/user-attachments/assets/95effe1d-103d-433e-9ad7-ace2b73fb3bd" />
-<p align="center"> $\color{#a8a59a}{\textsf{yall LOOK and DROOL at these. NOW.}}$</summary>
-   </details>
+<img alt="1" src="https://github.com/user-attachments/assets/9325653b-b905-471e-8d2e-9676a2910f6f" /><https://atteiu.straw.page/></a> <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=%E0%A9%AD%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%D6%B9%C2%A0%C2%A0%C2%A0%F0%9D%92%82%F0%9D%92%95%F0%9D%92%90%F0%9D%92%8C%F0%9D%92%8A%F0%9D%92%93%F0%9D%92%8A%F0%9D%92%8F%F0%9D%92%82%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%CB%98&labelColor=%233a3e6c&countColor=%238387c3&style=flat" /></a> <img alt="tumblr_b97fbc8ac4f36eb74523ae06bbd6dc9f_73e45f6d_100" src="https://github.com/user-attachments/assets/4792bafb-b093-48b0-9afe-e5317ae6bf50" /><https://atteiu.atabook.org/></a>
+
+
 
 
 
