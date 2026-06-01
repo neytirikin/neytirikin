@@ -5,11 +5,11 @@
 <div>
 <div align="center">
   
-[<img alt="1" src="https://github.com/user-attachments/assets/9325653b-b905-471e-8d2e-9676a2910f6f"/>](https://neyneyrey.straw.page/) </a>ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=%E0%A9%AD%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%D6%B9%C2%A0%C2%A0%C2%A0%F0%9D%92%82%F0%9D%92%95%F0%9D%92%90%F0%9D%92%8C%F0%9D%92%8A%F0%9D%92%93%F0%9D%92%8A%F0%9D%92%8F%F0%9D%92%82%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%C2%A0%CB%98&labelColor=%233a3e6c&countColor=%238387c3&style=flat" /></a>ㅤㅤ[<img alt="tumblr_b97fbc8ac4f36eb74523ae06bbd6dc9f_73e45f6d_100" src="https://github.com/user-attachments/assets/4792bafb-b093-48b0-9afe-e5317ae6bf50" />](https://atteiu.atabook.org/)</a>
+[<img alt="1" src="https://github.com/user-attachments/assets/9325653b-b905-471e-8d2e-9676a2910f6f"/>](https://neyneyrey.straw.page/) </a>ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=%E0%A9%AD%20%20%D6%B9%20%20%20%F0%9D%91%9B%F0%9D%91%8E'%F0%9D%91%A3%F0%9D%91%96%20%20%20%20%CB%98&labelColor=%233b3f68&countColor=%237a7db3&style=flat" /></a>ㅤㅤ[<img alt="tumblr_b97fbc8ac4f36eb74523ae06bbd6dc9f_73e45f6d_100" src="https://github.com/user-attachments/assets/4792bafb-b093-48b0-9afe-e5317ae6bf50" />](https://atteiu.atabook.org/)</a>
 <div>
 <div align="center">
 
-[<img alt="ney" src="https://github.com/user-attachments/assets/31cd8d5b-9104-4dfb-8539-62f9fbe757c1" />](https://github.com/neytirikin/)</a> [<img alt="jake" src="https://github.com/user-attachments/assets/f931c1f3-b34b-4d09-ae14-7bd20ac18167" />](https://github.com/Friendlybites/)
+[<img alt="ney" src="https://github.com/user-attachments/assets/e062b5b9-ec84-4e3b-af65-c0753f842920" />](https://github.com/neytirikin/)</a> [<img alt="jake" src="https://github.com/user-attachments/assets/eeae9eef-4740-4b74-a5f2-30c803e7fbd5" />](https://github.com/Friendlybites/)
 <p align="center"> ${\textsf{\color{#8eb5f0}click}}$ ${\textsf{\color{#858ae3}to}}$ ${\textsf{\color{#7364d2}visit}}$
 
 
