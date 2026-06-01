@@ -10,7 +10,7 @@
 <div align="center">
 
 [<img alt="ney" src="https://github.com/user-attachments/assets/e062b5b9-ec84-4e3b-af65-c0753f842920" />](https://github.com/neytirikin/)</a> [<img alt="jake" src="https://github.com/user-attachments/assets/eeae9eef-4740-4b74-a5f2-30c803e7fbd5" />](https://github.com/Friendlybites/)
-<p align="center"> ${\textsf{\color{#8eb5f0}click}}$ ${\textsf{\color{#858ae3}to}}$ ${\textsf{\color{#7364d2}visit}}$
+<p align="center"> ${\textsf{\color{#8eb5f0}me}}$ ${\textsf{\color{#858ae3}and}}$ ${\textsf{\color{#7364d2}my}}$ ${\textsf{\color{#613dc1}puppy}}$
 
 
 
