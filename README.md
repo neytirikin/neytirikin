@@ -10,7 +10,10 @@
 <div align="center">
 
 [<img alt="ney" src="https://github.com/user-attachments/assets/e062b5b9-ec84-4e3b-af65-c0753f842920" />](https://github.com/neytirikin/)</a> [<img alt="jake" src="https://github.com/user-attachments/assets/eeae9eef-4740-4b74-a5f2-30c803e7fbd5" />](https://github.com/Friendlybites/)
-<p align="center"> ${\textsf{\color{#8eb5f0}me}}$ ${\textsf{\color{#858ae3}and}}$ ${\textsf{\color{#7364d2}my}}$ ${\textsf{\color{#613dc1}puppy}}$
+<p align="center"><img alt="tumblr_d32ba24c690a859678204287a464068e_74cf90f0_75" src="https://github.com/user-attachments/assets/874ac5fb-fd25-4374-a5da-abb1df3a7041" /> ${\textsf{\color{#8eb5f0}me}}$ ${\textsf{\color{#858ae3}and}}$ ${\textsf{\color{#7364d2}my}}$ ${\textsf{\color{#613dc1}puppy}}$ <img alt="tumblr_6d7ec037efc3977a0369154811db5670_b8745cb4_75" src="https://github.com/user-attachments/assets/ca96c63d-de84-4309-8ddb-47981a9906ec" />
+
+<p align="center"> ${\textsf{\color{#93caf6}all}}$ ${\textsf{\color{#8eb5f0}DNI}}$ ${\textsf{\color{#858ae3}when}}$ ${\textsf{\color{#7364d2}i'm}}$ ${\textsf{\color{#613dc1}with}}$ ${\textsf{\color{#5829a7}him}}$
+
 
 
 
