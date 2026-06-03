@@ -16,7 +16,7 @@
 
 <p align="center"> <img alt="tumblr_02826e7ea51d9e93e74ecdcd01031e38_55b9d7c0_540" src="https://github.com/user-attachments/assets/51497b52-1e88-4320-a13c-1207e095c6a7" />
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=8EB5F0&center=true&vCenter=true&width=435&lines=The+fire+in+my+blood;is+both+a+blessing+and+a+curse.;For+I+always+need+something+to+burn." alt="Typing SVG" /></a>
-<p align="center"> ➜ ${\textsf{\color{#0c1118} i love my baby puppy  ♡  ney's best pup  ♡  all dni}}$
+<p align="center"> ➜ ${\textsf{\color{#0c1118} i love my baby puppyㅤ♡ㅤney's best pupㅤ}}$
 
 
 
