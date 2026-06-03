@@ -1,3 +1,4 @@
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=858AE3&center=true&vCenter=true&width=435&lines=my+pup+bites;%E2%99%A1;int+with+caution" alt="Typing SVG" /></a>
 <p align="center"><img alt="tumblr_2a0a7e67fab0e283ae9e42e94f548400_23b35796_1280-ezgif com-speed" src="https://github.com/user-attachments/assets/070ee6a5-ec01-4a53-8d75-1aed58a7e482" />
 
 
@@ -7,15 +8,15 @@
 
 [<img alt="ney" src="https://github.com/user-attachments/assets/e062b5b9-ec84-4e3b-af65-c0753f842920" />](https://github.com/neytirikin/)</a> [<img alt="jake" src="https://github.com/user-attachments/assets/eeae9eef-4740-4b74-a5f2-30c803e7fbd5" />](https://github.com/Friendlybites/)
 <p align="center"><img alt="tumblr_d32ba24c690a859678204287a464068e_74cf90f0_75" src="https://github.com/user-attachments/assets/874ac5fb-fd25-4374-a5da-abb1df3a7041" /> ${\textsf{\color{#8eb5f0}me}}$ ${\textsf{\color{#858ae3}and}}$ ${\textsf{\color{#7364d2}my}}$ ${\textsf{\color{#613dc1}puppy}}$ <img alt="tumblr_6d7ec037efc3977a0369154811db5670_b8745cb4_75" src="https://github.com/user-attachments/assets/ca96c63d-de84-4309-8ddb-47981a9906ec" />
-
-<p align="center"> <img alt="tumblr_02826e7ea51d9e93e74ecdcd01031e38_55b9d7c0_540" src="https://github.com/user-attachments/assets/51497b52-1e88-4320-a13c-1207e095c6a7" />
-<p align="center"><img alt="tumblr_be3513acaa65de1b0bd2120c21c00615_1b8f5469_540" src="https://github.com/user-attachments/assets/d789b9d7-6691-4825-936c-c9022b087611" />
-
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=858AE3&center=true&vCenter=true&width=435&lines=my+pup+bites;%E2%99%A1;int+with+caution" alt="Typing SVG" /></a>
 <div>
 <div align="center">
   
 [<img alt="1" src="https://github.com/user-attachments/assets/9325653b-b905-471e-8d2e-9676a2910f6f"/>](https://neyneyrey.straw.page/) </a>ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fneytirikin"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fneytirikin&label=%E0%A9%AD%20%20%D6%B9%20%20%20%F0%9D%91%9B%F0%9D%91%8E'%F0%9D%91%A3%F0%9D%91%96%20%20%20%20%CB%98&labelColor=%233b3f68&countColor=%237a7db3&style=flat" /></a>ㅤㅤ[<img alt="tumblr_b97fbc8ac4f36eb74523ae06bbd6dc9f_73e45f6d_100" src="https://github.com/user-attachments/assets/4792bafb-b093-48b0-9afe-e5317ae6bf50" />](https://tree-gorilla-1c5.notion.site/Neyneyney-Neighneighneigh-374d155dd0288076a268c04c4d1802a7?pvs=143)</a>
+<p align="center"><img alt="tumblr_be3513acaa65de1b0bd2120c21c00615_1b8f5469_540" src="https://github.com/user-attachments/assets/d789b9d7-6691-4825-936c-c9022b087611" />
+
+<p align="center"> <img alt="tumblr_02826e7ea51d9e93e74ecdcd01031e38_55b9d7c0_540" src="https://github.com/user-attachments/assets/51497b52-1e88-4320-a13c-1207e095c6a7" />
+
+
 
 
 
