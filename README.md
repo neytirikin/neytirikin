@@ -1,4 +1,5 @@
-<p align="center"><img alt="Thiết kế chưa có tên (4) (1)" src="https://github.com/user-attachments/assets/673f79e7-a424-4ae1-8dcf-1fd788dd4d0e" />
+<p align="center"><img alt="jeytiri" src="https://github.com/user-attachments/assets/23729554-ed49-45f5-b95f-39200b8c5238" />
+
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=8EB5F0&center=true&vCenter=true&width=435&lines=All+energy+is+only+borrowed%2C;and+one+day+you+have+to+give+it+back." alt="Typing SVG" /></a>
 <p align="center"><img alt="tumblr_be3513acaa65de1b0bd2120c21c00615_1b8f5469_540" src="https://github.com/user-attachments/assets/d789b9d7-6691-4825-936c-c9022b087611" />
 <div>
